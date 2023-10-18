@@ -6,4 +6,5 @@
 
 ## pode entrar em contato comigo pelo email icaro.ieski@escola.pr.gov.br 
 
-![](https://media.tenor.com/QMDcdM2cp_AAAAAd/door-disassembly-door-breakdown.gif)
+![](https://media.tenor.com/OG0q6b6uzBQAAAAi/karajam.gif)
+
